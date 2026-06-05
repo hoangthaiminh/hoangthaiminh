@@ -9,3 +9,7 @@ They were given life and abundant intelligence;
 Yet they squander it completely.   
 
 Should these gifts be taken back?   
+
+---
+
+[![Lu-me-ii was killed successfully](https://i.postimg.cc/FFPBRpGp/Lu-me-ii-was-killed-successfully.gif)](https://minhhh.xo.je)
